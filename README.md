@@ -7,7 +7,7 @@
 ---
 
 ### Veronica Baker
-North Carolina → Florida → Colorado → Connecticut → Colorado → California → repeat → travel → 
+North Carolina → Florida → repeat → Colorado → Connecticut → California → repeat → travel → 
 
 France (Paris <3) → New York (Now). Fashion and luxury → AI and machine learning.
 

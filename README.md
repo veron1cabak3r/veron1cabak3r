@@ -2,7 +2,7 @@
   <img src="IMG_3040.jpeg" alt="Rough diamonds on a light" width="400"/>
 </p>
 
-<p align="center"><em>Small, flawed, and becoming.</em></p>
+<p align="center"><em>rough diamonds with inclusions. Botswana 📍</em></p>
 
 ---
 
